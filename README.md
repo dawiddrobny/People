@@ -1,1 +1,1 @@
-## Dawid Drobny, Damian Juszczak, Bartosz Opałka
+## Dawid Drobny, Damian Juszczak, Bartosz Opałka, Kacper Zając
